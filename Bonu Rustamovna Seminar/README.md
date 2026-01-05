@@ -1,2 +1,0 @@
-# Bonu-Rustamovna
-# Bonu-Rustamovna
